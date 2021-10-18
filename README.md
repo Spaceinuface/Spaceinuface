@@ -2,7 +2,7 @@
 - 👀 I’d love to learn more!
 - 🌱 I’m currently trying to teach myself python3 and recently started playing around in elementor for wordpress.
 - 💞️ I’m looking to collaborate on learning, I guess?
-- 📫 @ space(A)suited.nu // discord: Space#0402
+- 📫 @ READ BELLOW! <3 
 
 
 YEAH IM LEARNING PYTHON HOPEFULLY THEREFOR PLEASE DO NOT USE MY CODE IT MIGHT CAUSE HARM TO YOUR SHIT AND SOMEONE YOU LOVE.
@@ -24,6 +24,7 @@ http://discord.suited.nu
 
 Email                                                                
 kristofer.lindvall@gmail.com
+Space(A)suited(DOT)nu <- Not a lost cause jet and I intend to keep it that way. I sadly check it way to rarely.
 
 SIGNAL                                                              
 http://suited.nu/space/signal_qr.png               
